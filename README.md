@@ -6,8 +6,11 @@ As of: January 1, 2019
 mwgs - Mary | Wollstonecraft - Godwin - Shelley
 
 Penguin
+
 MIT
 https://www.newyorker.com/magazine/2018/02/12/the-strange-and-twisted-life-of-frankenstein
+
+https://historicengland.org.uk/listing/the-list/list-entry/1322050
 
 Mary Wollstonecraft
 
